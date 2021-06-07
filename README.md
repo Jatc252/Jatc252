@@ -1,3 +1,3 @@
-I code shitty things. Find them on my GitHub here.
+I code things that I find useful or need. Not much here at the moment.
 
-Contact me on Discord: https://discord.gg/5Jb6UhQztD
+https://linktr.ee/Jatc251
